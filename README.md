@@ -1,0 +1,1 @@
+- Hi, I’m @10Person. I am just some random guy trying to learn to code, I know evertyhing I make sucks so feel free to criticise.
