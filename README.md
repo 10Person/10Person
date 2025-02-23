@@ -4,4 +4,6 @@ I'm currently in highschool and enjoy on working on various tech projects. Thoug
 
 Hoping I can get into a cool college.
 
+Sorry for annoying all of you good folks.
+
 Contacts: [Will be added soon]
